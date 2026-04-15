@@ -5,3 +5,8 @@ omamamale
 
 
 żegnam
+  
+
+
+  to 2 chyba
+  
