@@ -5,3 +5,17 @@ omamamale
 
 
 żegnam
+co ta u ciebie
+
+
+
+
+
+
+
+
+
+
+
+
+to jest defult
