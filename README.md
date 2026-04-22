@@ -5,17 +5,8 @@ omamamale
 
 
 żegnam
-co ta u ciebie
+  
 
-
-
-
-
-
-
-
-
-
-
-
-to jest defult
+123
+  to 2 chyba
+  
